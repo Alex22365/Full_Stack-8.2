@@ -1,1 +1,0 @@
-# Full_Stack-8.2
